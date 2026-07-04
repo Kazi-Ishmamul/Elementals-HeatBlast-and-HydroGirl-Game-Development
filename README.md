@@ -40,6 +40,6 @@ For detailed gameplay instructions, refer to the **"How to Play the Game.pdf"** 
 ## 💡 Suggestions and Feedback
 Your feedback is valuable! If you have any suggestions or upgrades to propose, feel free to reach out:
 
-**Gmail:** mohammedtayebibne@gmail.com
+**Gmail:** kaziishmamulhaque@gmail.com
 
 Happy Gaming! 🎉
